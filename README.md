@@ -1,4 +1,4 @@
-#𝑔𝓊𝒾𝓁𝑒𝓇𝓂𝑒
+# 𝑔𝓊𝒾𝓁𝑒𝓇𝓂𝑒
 
 gosto de jogos eletronicos
 
